@@ -1,4 +1,4 @@
-### Hi there 👋
+### Eh Eh boi 👋
 
 ## I have other things to do, hence imma stick to the default template...
 
